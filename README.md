@@ -3,4 +3,4 @@
 ✔️- I need to be best that yesterday🏅
 ✔️- looking for what to perform professionally, for now studying..📚
 ✔️- GOD,FAMILY,STUDY AND HEALTH- PRINCIPLES👍💎
-✔️- My Gmail:@nathan.bernardelli.silva.@escola.pr.gov.br
+✔️- My Gmail:nathan.bernardelli.silva.@escola.pr.gov.br
